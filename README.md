@@ -1,0 +1,2 @@
+# -
+Trzeba próbować wszystkiego 
